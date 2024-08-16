@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+kelly estudante da alura 🧘🏻‍♀️😭
 <!--
 **Poquinha1/Poquinha1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
